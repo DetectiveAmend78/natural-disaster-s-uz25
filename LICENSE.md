@@ -1,4 +1,4 @@
-# 
+# natural disaster survival Scripts updated is the best natural disaster survival Script, featuring anti-ban and auto-upgrade. Safe and powerful for
 
 
 
